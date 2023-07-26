@@ -1,1 +1,1 @@
-### 👀 Hello! I am not a robot, my name is Ihor
+### 👀 I'm not a neural network, honestly.
